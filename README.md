@@ -7,4 +7,4 @@ SDSADDDAD***
 - [] 0-)
 - [] АФЫАЦЬТДЙЦАОЩАУЗРЦвкжГОУАЩЖОЙЦКЖШЙЦКХЩОП
   '#0969DA'
-   :+1: This [DELETED] looks great - it's ready to AAAAAAAAAAAAAAAHHHHHHHHHHHHH! :shipit: 
+    This 😠 [DELETED] looks great - it's ready to AAAAAAAAAAAAAAAHHHHHHHHHHHHH! 🍪
